@@ -1,0 +1,1 @@
+# new-responsive-web-design-certification-css-box-model-rothko-painting
